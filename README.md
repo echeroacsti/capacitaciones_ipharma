@@ -8,11 +8,11 @@ https://chainservicesti-my.sharepoint.com/:v:/g/personal/echero_csticorp_biz/EVG
 
 2da reunión:
 
-https://chainservicesti-my.sharepoint.com/:v:/r/personal/jariza_csticorp_biz/Documents/Recordings/Inducci%C3%B3n%20iPharma%20Sura%20_Soporte-20240312_150734-Grabaci%C3%B3n%20de%20la%20reuni%C3%B3n.mp4?csf=1&web=1&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=P7z9KO
+https://chainservicesti-my.sharepoint.com/:v:/g/personal/jariza_csticorp_biz/EWn5DwPah1BPruEtXahSPhMB6EAozAadhNZq89ZxkuuJ-A?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=z102wQ
 
 3ra reunión:
 
-https://chainservicesti-my.sharepoint.com/:v:/r/personal/jariza_csticorp_biz/Documents/Recordings/Inducci%C3%B3n%20iPharma%20Sura%20_Soporte%20-20240313_150514-Grabaci%C3%B3n%20de%20la%20reuni%C3%B3n.mp4?csf=1&web=1&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=OHp2rj
+https://chainservicesti-my.sharepoint.com/:v:/g/personal/jariza_csticorp_biz/EVdEbojiMkdAlNj-fyRqZHwBXnF0d-bDWkgTEdWsJfBHhQ?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=uH29Tc
 
 4ta reunión:
 
