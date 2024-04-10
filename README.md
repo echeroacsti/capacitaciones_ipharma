@@ -24,7 +24,7 @@ https://chainservicesti-my.sharepoint.com/:v:/g/personal/echero_csticorp_biz/EbD
 
 6ta reunión:
 
-https://chainservicesti-my.sharepoint.com/:v:/r/personal/jescudero_csticorp_biz/Documents/Recordings/Inducci%C3%B3n%20iPharma%20Sura%20_Soporte-20240318_150910-Grabaci%C3%B3n%20de%20la%20reuni%C3%B3n.mp4?csf=1&web=1&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=F8Q4Y9
+https://chainservicesti-my.sharepoint.com/personal/jescudero_csticorp_biz/_layouts/15/stream.aspx?id=%2Fpersonal%2Fjescudero%5Fcsticorp%5Fbiz%2FDocuments%2FRecordings%2FInducci%C3%B3n%20iPharma%20Sura%20%5FSoporte%2D20240318%5F150910%2DGrabaci%C3%B3n%20de%20la%20reuni%C3%B3n%2Emp4&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0&ga=1&referrer=StreamWebApp%2EWeb&referrerScenario=AddressBarCopied%2Eview
 
 7ma reunión:
 
