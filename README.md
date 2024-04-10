@@ -24,7 +24,7 @@ https://chainservicesti-my.sharepoint.com/:v:/g/personal/echero_csticorp_biz/EbD
 
 6ta reunión:
 
-
+https://chainservicesti-my.sharepoint.com/:v:/g/personal/jescudero_csticorp_biz/Ebs8IZ123DZLr0popOR2G0QBI3U5Z3htF8ivMvwMZE2rEQ?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=pngESE
 
 7ma reunión:
 
