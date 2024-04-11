@@ -31,10 +31,10 @@ https://chainservicesti-my.sharepoint.com/:v:/g/personal/jescudero_csticorp_biz/
 https://chainservicesti-my.sharepoint.com/:v:/r/personal/sviloria_csticorp_biz/Documents/Recordings/Inducci%C3%B3n%20iPharma%20Sura%20_Soporte-20240319_152115-Grabaci%C3%B3n%20de%20la%20reuni%C3%B3n.mp4?csf=1&web=1&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=C5OCMq
 
 8va reunión:
-https://chainservicesti-my.sharepoint.com/:v:/r/personal/rlazo_csticorp_biz/Documents/Recordings/Inducci%C3%B3n%20iPharma%20Sura%20_Soporte-20240320_151257-Grabaci%C3%B3n%20de%20la%20reuni%C3%B3n.mp4?csf=1&web=1&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=qoQDCx
+https://chainservicesti-my.sharepoint.com/:v:/g/personal/rlazo_csticorp_biz/EZQ94ZVjbbpNhlJQTqIAHqkBP5f6LHSLpgDRD2NUkRjzKA?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=haHd5F
 
 9na reunión:
-https://chainservicesti-my.sharepoint.com/:v:/r/personal/rlazo_csticorp_biz/Documents/Recordings/Inducci%C3%B3n%20iPharma%20Sura%20_Soporte-20240322_151706-Grabaci%C3%B3n%20de%20la%20reuni%C3%B3n.mp4?csf=1&web=1&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=tv9v3G
+https://chainservicesti-my.sharepoint.com/:v:/g/personal/rlazo_csticorp_biz/Eag8IbxZ619Nm1X36yAxiVEBH4CpXGo5qvp76l9myv5SsA?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=guZ4ej
 
 https://github.com/cloudfoundry/cli/releases
 
